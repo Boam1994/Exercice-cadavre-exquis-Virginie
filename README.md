@@ -9,3 +9,4 @@ Amin et ses amis ont prévu de faire une petite randonnée.
 Ils préparent alors leurs sacs à dos avec tout le nécessaire pour la journée.
 Mais un cerf fonce sur nous
 Ils se sont mis alors à courir dans tous les sens quand aussitôt
+un lapin blanc  saute tres haut
